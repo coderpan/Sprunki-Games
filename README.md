@@ -48,3 +48,5 @@ Endless possibilities: Experiment with different combinations of sounds to disco
 Share your creations: Share your musical masterpieces with friends and family, or join the Sprunki community to collaborate and learn from other beatmakers.
 Ready to Mix with Sprunki Incredibox
 Head over to [Sprunki Incredibox Games](https://sprunki-incredibox.co "Sprunki Incredibox Games") to play Sprunki Incredibox online today!
+
+[Trustscore](https://www.scamadviser.com/check-website/sprunki-incredibox.co)
