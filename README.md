@@ -50,3 +50,5 @@ Ready to Mix with Sprunki Incredibox
 Head over to [Sprunki Incredibox Games](https://sprunki-incredibox.co "Sprunki Incredibox Games") to play Sprunki Incredibox online today!
 
 [Trustscore](https://www.scamadviser.com/check-website/sprunki-incredibox.co)
+
+[Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
